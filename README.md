@@ -33,7 +33,7 @@ ________________________________________________________________________________
 
 ### 🗣 Idiomas:
 🇧🇷 Português - Nativo | 
-🏴󠁧󠁢󠁥󠁮󠁧󠁿 English - Advanced | 
+🇺🇸 English - Advanced | 
 🇪🇸 Español - Intermediario
 
 
